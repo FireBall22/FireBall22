@@ -1,5 +1,5 @@
-- 🎮Zesraj się hejterze jestem @FireBall22
-- 🤬Sram na hejterów
+- 🎮   Zesraj się hejterze jestem @FireBall22
+- 🤬  Sram na hejterów
 - 🤣 Robie na nich srake
 - ✨ Robie tez mape
 - 📣 I raczej to jest do dupy
